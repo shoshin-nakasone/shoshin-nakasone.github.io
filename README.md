@@ -1,0 +1,1 @@
+# shoshin-nakasone.github.io
